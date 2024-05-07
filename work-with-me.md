@@ -130,7 +130,7 @@ I've enjoyed mentorship opportunities I've had in the past, and believe I'd be e
 Being direct is something I could be much better about.
 I often spend so much time trying to say something well, or overly gently, that the impact of direct communicaton can get lost.
 Some folks appear naturally talented at being direct and consciencious.
-If I ever say something that comes of curt, or inconsiderate please know that it's probably just me practicing being direc and falling flat.
+If I ever say something that comes of curt, or inconsiderate please know that it's probably just me practicing being direct and falling flat.
 Give me feedback when it happens!
 
 ### Being quick
