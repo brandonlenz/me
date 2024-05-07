@@ -150,5 +150,6 @@ Sometimes a good "YOLO" is exactly what is needed.
 - Cast Iron Pans
 - [Martial Arts Tricking](https://en.wikipedia.org/wiki/Tricking_(martial_arts))
 - Pets
+- Gardening
 - Programming languages
 - Why [Horizon](https://en.wikipedia.org/wiki/Horizon_(video_game_series)) is my favorite sci-fi story
